@@ -4,7 +4,7 @@
 
 Inch intercepts the void that drives bad habits and redirects you toward your personal goals with one specific, physical micro-action.
 
-🌐 [getinch.app](https://getinch.app) &nbsp;·&nbsp; 📱 Coming to the App Store
+📱 Coming to the App Store
 
 ---
 
